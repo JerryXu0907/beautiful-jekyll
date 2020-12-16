@@ -11,6 +11,6 @@ My name is Zhengjie Xu. I am currently a senior student at UCSD, majoring Comput
 
 I was born and raised in Shanghai, one of the biggest cities in China. 
 
-I am a huge game fan. I play RPG, RTS and FPS a lot. I am also a huge fnatic of Dota2 (currenly ~4000MMR).
+I am a huge game fan. I play RPG, RTS and FPS a lot. I am also a Dota2 player (currenly ~4000MMR).
 
 I have raised a cat called pudge(the name of the most popular hero in Dota2). Check out her photos at my instagram!
